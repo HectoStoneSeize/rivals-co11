@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals Script premium, the #1 Script. Includes invisibility and speed for unbeatable performance.
 
 
 
